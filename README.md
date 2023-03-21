@@ -3,4 +3,4 @@
 
 <strong>[DOWNLOAD](https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg
 )</strong>
-<IMG src="https://i.imgur.com/uMO5en4.png" href="https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg">
+<IMG href="https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg" src="https://i.imgur.com/uMO5en4.png" >
