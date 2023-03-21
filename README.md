@@ -3,5 +3,5 @@
 
 <strong>[DOWNLOAD](https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg
 )</strong>
-<IMG href="https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg" src="https://i.imgur.com/uMO5en4.png" >
+
    <p><a href="https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg"><img src="https://i.imgur.com/uMO5en4.png"</a></p>
