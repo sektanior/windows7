@@ -3,4 +3,4 @@
 
 <strong>[DOWNLOAD](https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg
 )</strong>
-<blockquote class="imgur-embed-pub" lang="en" data-id="a/uMO5en4" data-context="false" ><a href="//imgur.com/a/uMO5en4"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+<img src="https://camo.githubusercontent.com/38cb7787c4c17517f8e208adaba0ef691e0193655f740f7064c483828c21e19b/68747470733a2f2f692e696d6775722e636f6d2f4e5565456b556b2e706e67" data-canonical-src="https://i.imgur.com/NUeEkUk.png([https://imgur.com/uMO5en4](https://mega.nz/folder/fOxHCBCT#GkJMkKJqygO49l3TsBmewg))" style="max-width: 100%;">
